@@ -1,2 +1,0 @@
-# Bingo-Altamira
-Bingo Altamira
